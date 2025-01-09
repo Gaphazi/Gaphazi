@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on nothing cause i can't do anything... yet.
 - 📫 How to reach me 
   Discord : Fauhacz#1416
-  email : fauhaa@gmail.com
 
 <!---
 Gaphazi/Gaphazi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
